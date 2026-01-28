@@ -1,2 +1,0 @@
-# kaganlardiyari
-Türkçe DnD Evreni
